@@ -3,3 +3,5 @@
 Askar is bik aibat eget
 
 Eliza is bik yakshi kizikay
+
+They are always smile - i like that ^_^
