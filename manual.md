@@ -1,4 +1,4 @@
-# My first remote repositoty created on GeekBrain cources
+# My first remote repositoty created for Musin family
 
 Askar is bik aibat eget
 
